@@ -6,4 +6,6 @@ ta o comando porra nenhuma kkkkkkkkkkkk
 
 Sou Emily 
 
-Oi me chamo leticia 
+Oi me chamo leticia
+
+Bernardo Biesseck
