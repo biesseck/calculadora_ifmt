@@ -1,1 +1,3 @@
-Olá pessoal, aqui é o prof Bernardo!
+Olá pessoal, aqui é o prof Bernardo! 
+
+Eu sou o Victor e estou no comando!...
