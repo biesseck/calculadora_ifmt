@@ -20,3 +20,5 @@ ta o comando porra nenhuma kkkkkkkkkkkk
   
   eu me chamo taylla
 >>>>>>> Stashed changes
+
+Deu certooo kkkkkkkkkk
